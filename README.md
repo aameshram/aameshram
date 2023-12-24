@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @aameshram
-- 👀 I’m  just tinkering around , as i read on reddit "the more you fu*k around ,the more you find out". so iam trying to do just that
+- 👀 I’m  just tinkering around.
 - 📫 You can reach me at aameshram@outlook.com
 
 <!---
